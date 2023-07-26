@@ -1,1 +1,1 @@
-# socail_media
+# socal_media
